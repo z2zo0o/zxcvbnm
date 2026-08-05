@@ -1,8 +1,1 @@
-# zxcvbnm
-
-
-
-https://sshx.io/s/BhtKsxOyjq#BGF1UGdRaAT46c
-
-
-
+https://sshx.io/s/k7sm9ijXsz#N0C3QhhE6uBibm
